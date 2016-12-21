@@ -1,1 +1,0 @@
-# Obrabotki-pomoika
